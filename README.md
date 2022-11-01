@@ -18,7 +18,7 @@
 * 欢迎加群一起吹水 635160015
 
 
-![IMG_0385](https://user-images.githubusercontent.com/89823575/199211175-9c27800d-4f69-4022-8f26-b0083a04b8b1.jpg)
+
 
 
 ![0](https://user-images.githubusercontent.com/89823575/199192486-d54c3d99-73dc-4993-bedf-1a0cbc6b12d1.jpg)
